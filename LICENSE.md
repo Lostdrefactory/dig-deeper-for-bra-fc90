@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots Script new offers the most advanced dig deeper for brainrots Script, with fly and no clip. Perfect for dominating any match.
 
 
 
